@@ -1,2 +1,2 @@
 # Deep_Chavda Card
-https://deepchavda007.github.io/Dark-Light-Profile/
+https://deepchavda007.github.io/Deep_Chavda_Card/
